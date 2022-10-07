@@ -1,4 +1,4 @@
 # BestRedirection
 
 Could you find better domain name than mklmkl?
-qovkaR-wizxiq-mycqy3
+Dlaczego tu jesteś? Nie ma osoby lepszej ode mnie. 
